@@ -1,2 +1,1 @@
-# khas21
-akun
+             SELAMAT DATANG KAWAN
